@@ -1,6 +1,6 @@
-### Hi there 👋
+### Alexander's GitHub Profile
 
-Alexander's GitHub Profile
+
 👋 Hello there! Welcome to my GitHub profile. I'm Alexander, and I play Genshin Impact, Honkai Star Rail and Honkai Impact, I'm also into competitive COD. Most of my projects will center around these topics. 
 
 Thanks for stopping by! Feel free to explore my repositories and reach out if you have any questions or just want to chat. 😊
